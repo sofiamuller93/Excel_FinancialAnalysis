@@ -1,0 +1,1 @@
+# Please note that authorization was obtained from property owners to disclose the financial information included in this repository
